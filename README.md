@@ -9,7 +9,7 @@
 * [Fufu Taiwanese Shabu ชาบูไต้หวันย่านอารีย์ มันดี๊ดีตรง Haagen-Dazs ไม่อั้น](https://pantip.com/topic/36690276)
 ## Japanese
 * [Gojuu Sushi คือดีงาม สายบุฟเฟ่ห้ามพลาด](https://pantip.com/topic/36722403)
-* [OISHI EATERIUM ไปร้านเปิดใหม่กี่ครั้งเป็นได้แค่ CR](https://pantip.com/topic/36712012)
+* [OISHI EATERIUM ไปร้านเปิดใหม่กี่ครั้งเป็นได้แค่](https://pantip.com/topic/36712012)
 ## Chinese
 
 ## Seafood
